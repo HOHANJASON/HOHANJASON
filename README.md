@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning blender ,after effact ,python ,wedsite application , coder
 - 💞️ I’m looking somebody study together about 3D blender modle maker or Post-flim and television
 - 📫 My mail:zhihuiyi874@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns:hohanjason
 - ⚡ Fun fact: ...
 
 <!---
