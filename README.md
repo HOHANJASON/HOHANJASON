@@ -1,10 +1,6 @@
 - 👋 Hi, I’m @HOHANJASON
-- 👀 I’m interested in compter leng OR blender ,adobe after effact ,python ,wedsite application , coder
-- 🌱 I’m currently learning blender ,after effact ,python ,wedsite application , coder
-- 💞️ I’m looking somebody study together about 3D blender modle maker or Post-flim and television
-- 📫 My mail:zhihuiyi874@gmail.com
-- 😄 Pronouns:hohanjason
-- ⚡ Fun fact: ...
+was exchange student in Mexico
+I study for all that i can earn "MONEY"
 
 <!---
 HOHANJASON/HOHANJASON is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
